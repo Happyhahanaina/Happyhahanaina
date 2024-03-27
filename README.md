@@ -2,7 +2,7 @@
 - 👀 I’m interested in coding
 - 🌱 I’m currently learning c++
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+- 📫 How to reach me insta  _.my_moments_
 - 😄 Pronouns: She
 - ⚡ Fun fact: I am an first year student.
 
