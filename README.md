@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me insta  _.my_moments_
 - 😄 Pronouns: She
-- ⚡ Fun fact: I am an first year student.
+- ⚡ Fun fact: I am a second year student.
 
 <!---
 Happyhahanaina/Happyhahanaina is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
